@@ -1,1 +1,0 @@
-# githowto-prac-1
